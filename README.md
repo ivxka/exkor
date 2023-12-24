@@ -12,3 +12,4 @@ Socials:
 Steam : https://steamcommunity.com/id/gamblingchampion/ <
 Epic Games : Exkor <
 Tiktok : https://www.tiktok.com/@mestosostanj <
+Discord: <https://discord.com/users/227049095213088768> <
