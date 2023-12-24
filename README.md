@@ -9,6 +9,6 @@ Exkor is a loser femboy who grooms depressed 14 year olds, He is 15 years old (n
 
 
 Socials: 
-Steam : https://steamcommunity.com/id/gamblingchampion/
-Epic Games : Exkor
-Tiktok : https://www.tiktok.com/@mestosostanj
+Steam : https://steamcommunity.com/id/gamblingchampion/ <
+Epic Games : Exkor <
+Tiktok : https://www.tiktok.com/@mestosostanj <
